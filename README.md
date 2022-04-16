@@ -38,8 +38,10 @@ Hide file
 
 =========================================
 
-- 1 Month 350$
-- 3 Months 450$
+$350 for 1 Month Private Stub
+$450 for 3 Month Private Stub
+
+Accepting btc, ltc, eth, xmr and perfect money
 
 =========================================
 
@@ -47,7 +49,13 @@ Hide file
 
 =========================================
 
-https://t.me/metaluniverse8
+JABBER ID : metaluniverse8@xmpp.jp
+Telegram ID : @metaluniverse
 
 =========================================
 
+🔥 TOS
+
+This is for file protection only, any misuse of the files generated is not my fault. 
+
+=========================================
